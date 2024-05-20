@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @baibhabsign45
 - 👀 I’m interested in ... new job in data science field
 - 🌱 I’m currently learning ...the world of data and the possibilities it offers
-- - 📫 How to reach me ... baibhabsign45/baibhabsign45 
+- - 📫 How to reach me ... baibhabnegi45@gmail.com 
 - 😄 Pronouns: ...HE/HIM
 - ⚡ Fun fact: ... I like Excitement
   
